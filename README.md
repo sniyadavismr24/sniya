@@ -6,6 +6,6 @@
 3. CHRISTO
 * SNIYA
 * CHRISTO
-* SMIYA
+* SMIYA \
 ![alt text](![Uploading three-sword-style-3840x2160-26027.jpg…]()
 )
